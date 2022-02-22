@@ -1,0 +1,1 @@
+# Easier-And-Effective-Way-To-Pass-the-COBIT-2019-Exam-With-Isaca-COBIT-2019-Questions
